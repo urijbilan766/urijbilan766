@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @urijbilan766hjv,vcxbfdgmn gfd
 - 👀 I’m interested intui ...
 - 🌱 I’m sadas learsadning ...gklj
-- 💞️ I’m looking to collabovxcratevcx on ...wqasd
+- 💞️ I’m looking to collabovxcratevasccxxzcx zxcxzczon ...wqasd
 - 📫 How to reach me ...xsasax
 <!---hbxsavxc
 urijbilan766/sad is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
