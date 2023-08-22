@@ -1,6 +1,6 @@
 xzcc- 👋 Hi, I’m @urijbilan766hjv,vcxbfdgmn gfd
 - 👀 I’m interested intui ...
-- 🌱 I’m sadas learsadning ...gklj
+- 🌱 I’m sadas learsaxvcdningcxv ...gklj
 - 💞️ I’m looking to collabovxcratevasccxxzcx zxvzxcxzczon ...wqasd
 - 📫 How to reach me ...xsasax
 <!---hbxsavxc
