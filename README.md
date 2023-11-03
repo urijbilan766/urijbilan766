@@ -3,7 +3,7 @@
 - 💞️ I’m looking to collabovxcratevazxcsdfcvxzzxczxczxc
 - 📫 How to reach me ...xvscxzasaxasdsdcasdsadasd
 <!---hbxsavxcxzcxzcsdfdsf
-urijbilan766/sad is a ✨ special ✨ repository because its `READMмсчE.md` (dgfhdgfhthisфів file)лрои appears cxzxcoasdfasdfn gbfyour GitHub profile.xghjfhіфвіфвфівіфz
+urijbilan766/sad is a ✨ special ✨ repository because its `READMмсчE.md` (dgfhdgfhthisфів file)лрои appears cxzxcoasdfasdfn gbfyour GitHub profile.xghjfhіфвіфвфівіфzasdzxc
 You can click the Preview linисмиk to take a look at yyiuour changes.assdfdsfdsfdxcbvвфа
 --->смиавпмсчсч
 zcdfgasdsaddassad
