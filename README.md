@@ -1,6 +1,6 @@
  xxzcc- 👋 Hi, I’m @urijbilan766hjv,vcxbfівфіввфіdgmn gfd
 - 👀 I’m interested intui ...xcsacxzczxcvxvzxzcxzc
-- 💞️ I’m looking to ,hjgропfsdfsdsdasdasdaskhjjhчсячhasdssadasdadfdgjjghscasdasdasdxvadsasdasdasdasasdasdxzcxzcgnsadcollabovfzdfvcvxcratevsdasdaazxdasdфчіфsadcsdмсчcvxzasdcxzфівфівczasdsadxczxasczxcdsfaвіавіаasasdsadfasфівіфвdfячячіів
+- 💞️ I’m looking to sdfd,hjgропfsdfsdsdasdasdaskhjjhчсячhasdssadasdadfdgjjghscasdasdasdxvadsasdasdasdasasdasdxzcxzcgnsadcollabovfzdfvcvxcratevsdasdaazxdasdфчіфsadcsdмсчcvxzasdcxzфівфівczasdsadxczxasczxcdsfaвіавіаasasdsadfasфівіфвdfячячіів
 - 📫 How to reach me sadasdasdasdasd...xsdfdsvscx.kljzasaxasdsdcasdsadasd
 <!---hbxsavxcxzcxzcsdfdsfasdsadasd
 urijbilan766/sad is a ✨ special ✨ repository because its `READMмсчE.md` (dgfhdgfhthisфів file)лрои appears cxzxcoasdfasdfn gbfyour GitHubфівіфв profile.xghjfhіфвіфвфівіфzasdzxc
