@@ -1,5 +1,5 @@
  xxzcc- 👋 Hi, I’m @urijbilan766hjv,vcxbfівфіввфіdgmn gfd
-- 👀 I’m interested intui ...xcsacглнпагxzczxcvxvzxzcxzcvsdівфfsdммчссsfsdмadssadasdgvgjhk
+- 👀 I’m interested intui asdcva...xcsacглнпагxzczxcvxvzxzcxzcvsdівфfsdммчссsfsdмadssadasdgvgjhk
 - 💞️ I’m looking to sadasdsagjmbsdfd,hjgропfsdfsdsdasdasdaskhjjhчсячhasdssadasdadfdgjjghscasdasdasdxvadsasdasdasdasasdasdxzulhjlcxzcgnsadcollabovfzdfvcvxcratevsdasdaazxdasdфчіфsadcsdмсчcvxzasdcxzфівфівczasdsadxczxasczxcdsfaвіавіаasasdsadfasфівіфвdfячячіівsadzxc
 - 📫 How to reach me одоsadasdasdasdasd...xsdfdsvscx.kljzasaxasdsdcasdsadasd
 <!---hbxsavxcxzcxzcsdfdsfasdsadasd
